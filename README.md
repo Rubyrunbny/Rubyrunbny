@@ -52,6 +52,13 @@
   
 ![Pursuer Old Idle](https://github.com/rubycoon/rubycoon/blob/19b5ce7e3fdfd8e680fe878ed7eca4a98cdaca8b/Pursuer_old_idle_in_game.webp?raw=true)
 <br><br>
+
+bradar i luv u / tysm <br><br>
+
+<div align="center">
+  
+<img src="https://raw.githubusercontent.com/rubycoon/rubycoon/d40732f234ebc59af88d4f231a2beace9b34870e/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%819_20261024232053.png" width="400"><br><br>
+
     
   </p>
 </details
