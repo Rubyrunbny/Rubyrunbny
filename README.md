@@ -1,4 +1,15 @@
 
+<div align="center">
+<details>
+  <summary>NOTE</summary>
+
+  <p>
+    I really love life, but Travis is a character I like.
+   
+
+</p>
+</details>
+
 
 <div align="center">
 
@@ -13,6 +24,10 @@
 <div align="center">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C93838&background=000000&multiline=true&width=850&height=200&lines=%22Make+me+normal%2C+next+time%2C+God.%22++;This+article+contains+sensitive+content+regarding%C2%A0suicide+and+self-harm.;%22Make+me+normal%2C+next+time%2C+God.%22++;+This+article+contains+sensitive+content+regarding%C2%A0suicide%2C+drug+abuse%2C+and+violence.)](https://git.io/typing-svg)
+
+<div align="center">
+
+<img src="https://github.com/rubycoon/rubycoon/blob/58c58fbae0b2bb220e90596bec75e70a66a7b58c/d43f1cdc7562349ed9c9afff317298ac.jpg" width="250">
 
 -----------------------------------------------------------------------------------------------------
 
@@ -41,17 +56,12 @@
 
 <div align="center">
 <details>
-  <summary>pooper : shincyu </summary>
+  <summary> shincyu </summary>
 
   <p>
     
   joke<br><br>
 
-
-<div align="center">
-  
-![Pursuer Old Idle](https://github.com/rubycoon/rubycoon/blob/19b5ce7e3fdfd8e680fe878ed7eca4a98cdaca8b/Pursuer_old_idle_in_game.webp?raw=true)
-<br><br>
 
 bradar i luv u / tysm <br><br>
 
