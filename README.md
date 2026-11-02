@@ -2,7 +2,7 @@
 
 <div align="center">
 
-[![Hits](https://hits.sh/github.com/twottimey.svg?style=for-the-badge&label=pursuer&color=00ffb6&labelColor=000000&logo=Roblox)](https://hits.sh/github.com/twottimey/)
+[![Hits](https://hits.sh/github.com/twottimey.svg?style=for-the-badge&label=TRAVIS&extraCount=999&color=C93838FF&labelColor=000000&logo=Roblox)](https://hits.sh/github.com/twottimey/)
 
 
 <div align="center">
@@ -12,7 +12,7 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=CANADA+WRITE&size=10&pause=1000&color=008F66&background=000000&multiline=true&width=450&lines=I'll+eat+you;%F0%9F%91%80)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C93838&background=000000&multiline=true&width=850&height=200&lines=%22Make+me+normal%2C+next+time%2C+God.%22++;This+article+contains+sensitive+content+regarding%C2%A0suicide+and+self-harm.;%22Make+me+normal%2C+next+time%2C+God.%22++;+This+article+contains+sensitive+content+regarding%C2%A0suicide%2C+drug+abuse%2C+and+violence.)](https://git.io/typing-svg)
 
 -----------------------------------------------------------------------------------------------------
 
