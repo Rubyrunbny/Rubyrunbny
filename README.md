@@ -7,7 +7,7 @@
 
 <div align="center">
 
-![Pursuer Intro](https://github.com/rubycoon/rubycoon/blob/670f75fbb7f3c490d6f6ac5d1ef2b3872bf41b6c/PursuerIntroV5.webp?raw=true)
+<img src="https://github.com/rubycoon/rubycoon/blob/41e5940d2386069961da3cbd82a76a4ab5cce74d/TravisOfficial.webp" width="400">
 
 
 <div align="center">
