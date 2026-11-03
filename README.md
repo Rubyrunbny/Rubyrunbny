@@ -1,4 +1,8 @@
 
+<p align="center">
+  <img src="https://raw.githubusercontent.com/rubycoon/rubycoon/7a9acfa8c2d64ca74fdfbea6152a0e430192c062/giphy.gif" width="100">
+</p>
+
 <div align="center">
 <details>
   <summary>NOTE</summary>
@@ -15,10 +19,6 @@
 
 [![Hits](https://hits.sh/github.com/twottimey.svg?style=for-the-badge&label=TRAVIS&extraCount=999&color=C93838FF&labelColor=000000&logo=Roblox)](https://hits.sh/github.com/twottimey/)
 
-
-<p align="center">
-  <img src="https://raw.githubusercontent.com/rubycoon/rubycoon/7a9acfa8c2d64ca74fdfbea6152a0e430192c062/giphy.gif" width="300">
-</p>
 
 <div align="center">
 
