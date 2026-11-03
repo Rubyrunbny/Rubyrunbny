@@ -16,6 +16,10 @@
 [![Hits](https://hits.sh/github.com/twottimey.svg?style=for-the-badge&label=TRAVIS&extraCount=999&color=C93838FF&labelColor=000000&logo=Roblox)](https://hits.sh/github.com/twottimey/)
 
 
+<p align="center">
+  <img src="https://raw.githubusercontent.com/rubycoon/rubycoon/7a9acfa8c2d64ca74fdfbea6152a0e430192c062/giphy.gif" width="300">
+</p>
+
 <div align="center">
 
 <img src="https://github.com/rubycoon/rubycoon/blob/41e5940d2386069961da3cbd82a76a4ab5cce74d/TravisOfficial.webp" width="400">
