@@ -60,8 +60,6 @@
 
   <p>
     
-  joke<br><br>
-
 
 bradar i luv u / tysm <br><br>
 
