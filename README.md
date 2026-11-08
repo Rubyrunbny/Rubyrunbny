@@ -1,6 +1,9 @@
 <p align="center">
 dnc my skins / colors
 
+  <p align="center">
+If my skin’s design or colors happen to be similar to yours, please let me know!
+  
 <p align="center">
   <img src="https://raw.githubusercontent.com/rubycoon/rubycoon/7a9acfa8c2d64ca74fdfbea6152a0e430192c062/giphy.gif" width="100">
 </p>
