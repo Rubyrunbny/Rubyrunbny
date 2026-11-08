@@ -1,3 +1,5 @@
+<p align="center">
+dnc my skins / colors
 
 <p align="center">
   <img src="https://raw.githubusercontent.com/rubycoon/rubycoon/7a9acfa8c2d64ca74fdfbea6152a0e430192c062/giphy.gif" width="100">
