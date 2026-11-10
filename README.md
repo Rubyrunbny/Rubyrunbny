@@ -1,11 +1,7 @@
-<p align="center">
-dnc my skins / colors 
 
-  <p align="center">
-If my skin’s design or colors happen to be similar to yours, please let me know!
   
 <p align="center">
-  <img src="https://raw.githubusercontent.com/rubycoon/rubycoon/7a9acfa8c2d64ca74fdfbea6152a0e430192c062/giphy.gif" width="100">
+  <img src="https://github.com/rubycoon/rubycoon/blob/f93f468f388f7278de9e49f41e59f84e653b86ba/enneagram-enneahuman.gif" width="250">  
 </p>
 
 <div align="center">
@@ -13,8 +9,11 @@ If my skin’s design or colors happen to be similar to yours, please let me kno
   <summary>NOTE</summary>
 
   <p>
-    I really love life, but Travis is a character I like.
-   
+   <p align="center">
+dnc my skins / colors 
+
+  <p align="center">
+If my skin’s design or colors happen to be similar to yours, please let me know!
 
 </p>
 </details>
@@ -22,21 +21,28 @@ If my skin’s design or colors happen to be similar to yours, please let me kno
 
 <div align="center">
 
-[![Hits](https://hits.sh/github.com/twottimey.svg?style=for-the-badge&label=TRAVIS&extraCount=999&color=C93838FF&labelColor=000000&logo=Roblox)](https://hits.sh/github.com/twottimey/)
+[![Hits](https://hits.sh/github.com/twottimey.svg?style=for-the-badge&label=SP9w8&color=6f7b5a&labelColor=ad775a)](https://hits.sh/github.com/twottimey/)
 
 
 <div align="center">
 
-<img src="https://github.com/rubycoon/rubycoon/blob/41e5940d2386069961da3cbd82a76a4ab5cce74d/TravisOfficial.webp" width="400">
+<img src="https://github.com/rubycoon/rubycoon/blob/f93f468f388f7278de9e49f41e59f84e653b86ba/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%8112_20261110192540.png" width="600">
 
 
 <div align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6F7B5A&width=435&lines=SP9w8+my+des+!" alt="Typing SVG" /></a>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C93838&background=000000&multiline=true&width=850&height=200&lines=%22Make+me+normal%2C+next+time%2C+God.%22++;This+article+contains+sensitive+content+regarding%C2%A0suicide+and+self-harm.;%22Make+me+normal%2C+next+time%2C+God.%22++;+This+article+contains+sensitive+content+regarding%C2%A0suicide%2C+drug+abuse%2C+and+violence.)](https://git.io/typing-svg)
+  -----
 
 <div align="center">
+me w a stranger
 
-<img src="https://github.com/rubycoon/rubycoon/blob/58c58fbae0b2bb220e90596bec75e70a66a7b58c/d43f1cdc7562349ed9c9afff317298ac.jpg" width="250">
+<img src="https://github.com/rubycoon/rubycoon/blob/f93f468f388f7278de9e49f41e59f84e653b86ba/fd7c8f7ed71c590ccf3e6e9f93deeb48.jpg" width="250">
+
+<div align="center">
+me w my best friends / friends
+
+<img src="https://github.com/rubycoon/rubycoon/blob/47c15581022bc5b00ae75593fa46bc5e8a8a27cf/0d1c5101ad7cf10198e62411b7b7ee5c.jpg" width="250">
 
 -----------------------------------------------------------------------------------------------------
 
