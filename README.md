@@ -1,5 +1,4 @@
 <p align="center">
-
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6F7B5A&width=435&lines=DNC+MY+SKINS%2F+COLORS)](https://git.io/typing-svg)
 
   <p align="center">
