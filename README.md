@@ -28,6 +28,11 @@ If my skin’s design or colors happen to be similar to yours, please let me kno
 
 <img src="https://github.com/rubycoon/rubycoon/blob/f93f468f388f7278de9e49f41e59f84e653b86ba/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%8112_20261110192540.png" width="600">
 
+<div align="center">
+
+<img src="https://github.com/rubycoon/rubycoon/blob/8720e7d9eab5ccebdcf654a1d7f66acef03a5922/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%8112_20261110192429.png" width="350">
+
+
 
 <div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6F7B5A&width=435&lines=SP9w8+my+des+!" alt="Typing SVG" /></a>
