@@ -37,12 +37,12 @@ If my skin’s design or colors happen to be similar to yours, please let me kno
 <div align="center">
 me w a stranger
 
-<img src="https://github.com/rubycoon/rubycoon/blob/f93f468f388f7278de9e49f41e59f84e653b86ba/fd7c8f7ed71c590ccf3e6e9f93deeb48.jpg" width="250">
+<img src="https://github.com/rubycoon/rubycoon/blob/f93f468f388f7278de9e49f41e59f84e653b86ba/fd7c8f7ed71c590ccf3e6e9f93deeb48.jpg" width="100">
 
 <div align="center">
-me w my best friends / friends
+me w my best friends
 
-<img src="https://github.com/rubycoon/rubycoon/blob/47c15581022bc5b00ae75593fa46bc5e8a8a27cf/0d1c5101ad7cf10198e62411b7b7ee5c.jpg" width="250">
+<img src="https://github.com/rubycoon/rubycoon/blob/47c15581022bc5b00ae75593fa46bc5e8a8a27cf/0d1c5101ad7cf10198e62411b7b7ee5c.jpg" width="100">
 
 -----------------------------------------------------------------------------------------------------
 
