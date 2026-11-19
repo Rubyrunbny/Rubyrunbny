@@ -58,6 +58,14 @@ me w my best friends
   <p>
    @cupcake-bug is @SleepLuvr
 
+   <br>
+   
+ai đó tên L hoặc là B ( tên cũ ) stop larp sx4 sx6 sp4 pls son
+<br>
+  
+<img src="https://github.com/Rubyrunbny/Rubyrunbny/blob/8f21c605de8732add9aac3b1af0d3d1002ab4f35/1716770600157a95e62a4caac1f77754.jpg" width="250">
+
+
 <br>
   When I first got to know her, I thought it was a beautiful friendship.<br><br>
     On the surface, she appears cheerful and kind, but she has a dark side that took me by surprise.<br><br>
