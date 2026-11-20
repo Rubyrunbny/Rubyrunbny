@@ -68,6 +68,11 @@ anh bạn còn ko có tư cách để larp nữa á " ultr "
   
 <img src="https://github.com/Rubyrunbny/Rubyrunbny/blob/8f21c605de8732add9aac3b1af0d3d1002ab4f35/1716770600157a95e62a4caac1f77754.jpg" width="250">
 
+<br>
+
+I just thought it looked nice, so I’m leaving it here—I’m not claiming it as my own. Also, could I please have the Pinterest link for the image?
+
+<img src="https://github.com/Rubyrunbny/Rubyrunbny/blob/f5104f7af3dc5707dfdd480c8b1d3d77f4109602/Screenshot_20261120_194937_Discord.jpg" width="250">
 
 <br>
   When I first got to know her, I thought it was a beautiful friendship.<br><br>
