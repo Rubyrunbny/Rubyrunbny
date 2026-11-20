@@ -83,8 +83,12 @@ I just thought it looked nice, so I’m leaving it here—I’m not claiming it 
     She said she liked me but then stabbed me in the back—no wonder her old group ostracized her so much.
     I don't want to interfere in her business, but I have to speak up because I am truly extremely annoyed by her disrespectful behavior toward me.<br><br>
     I was shocked.<br><br>
-    I’m only sharing that one small bit because her offenses are piled as high as a mountain—I just can't be bothered to tell the rest.<br><br>
-    
+    I’m only sharing that one small bit because her offenses are piled as high as a mountain—I just can't be bothered to tell the rest.
+
+<br>
+
+By my standards, I don’t really "like" anything in particular; the Enneagram is simply a symbol of a person’s personality. 
+<br><br>
   </p>
 </details>
 
