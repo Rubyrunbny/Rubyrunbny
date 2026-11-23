@@ -69,12 +69,6 @@ anh bạn còn ko có tư cách để larp nữa á " ultr "
 <img src="https://github.com/Rubyrunbny/Rubyrunbny/blob/8f21c605de8732add9aac3b1af0d3d1002ab4f35/1716770600157a95e62a4caac1f77754.jpg" width="250">
 
 <br>
-
-I just thought it looked nice, so I’m leaving it here—I’m not claiming it as my own. Also, could I please have the Pinterest link for the image?
-
-<img src="https://github.com/Rubyrunbny/Rubyrunbny/blob/f5104f7af3dc5707dfdd480c8b1d3d77f4109602/Screenshot_20261120_194937_Discord.jpg" width="250">
-
-<br>
   When I first got to know her, I thought it was a beautiful friendship.<br><br>
     On the surface, she appears cheerful and kind, but she has a dark side that took me by surprise.<br><br>
     She deceived me repeatedly over a long period. Looking back, I was no better than a cow being led around by the nose.<br><br>
@@ -92,6 +86,7 @@ By my standards, I don’t really "like" anything in particular; the Enneagram i
   </p>
 </details>
 
+người lạ nhìn m thôi mà cxng muốn đập m r huống chi là bạn bè .tính thì dâm , lớp 9 r mà như trẻ con lên 5 , học thì ngu toàn dưới 5 bảo sao cô chửi còn than vãn . son t rất là chiều chuộng bạn bè nhưng ko dung túng , não có ván đề thì đi khám cái loại tôm sông , sứa biển . suốt ngày đòi sh vs hỏi "có ghét mik ko" phiền ỉa bt là bị ghét r thì đừng hỏi nữa . quấy rối t rất nhiều tầm 3-4 lần bảo cút thì cứ năn nỉ , làm sai thì xin lỗi hờ hững ủa tưởng xin lỗi là xong haha ? ảnh pin đầy mà bảo tranh t trên X ? ủa alo ghen tị à thách thì tìm được bài đăng đó đi t gọi bà bố
 ---------
 
 <div align="center">
