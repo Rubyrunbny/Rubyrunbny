@@ -83,10 +83,12 @@ anh bạn còn ko có tư cách để larp nữa á " ultr "
 
 By my standards, I don’t really "like" anything in particular; the Enneagram is simply a symbol of a person’s personality. 
 <br><br>
+  
+người lạ nhìn m thôi mà cxng muốn đập m r huống chi là bạn bè .tính thì dâm , lớp 9 r mà như trẻ con lên 5 , học thì ngu toàn dưới 5 bảo sao cô chửi còn than vãn . son t rất là chiều chuộng bạn bè nhưng ko dung túng , não có ván đề thì đi khám cái loại tôm sông , sứa biển . suốt ngày đòi sh vs hỏi "có ghét mik ko" phiền ỉa bt là bị ghét r thì đừng hỏi nữa . quấy rối t rất nhiều tầm 3-4 lần bảo cút thì cứ năn nỉ , làm sai thì xin lỗi hờ hững ủa tưởng xin lỗi là xong haha ? ảnh pin đầy mà bảo tranh t trên X ? ủa alo ghen tị à thách thì tìm được bài đăng đó đi t gọi bà bố
+<br><br>
   </p>
 </details>
 
-người lạ nhìn m thôi mà cxng muốn đập m r huống chi là bạn bè .tính thì dâm , lớp 9 r mà như trẻ con lên 5 , học thì ngu toàn dưới 5 bảo sao cô chửi còn than vãn . son t rất là chiều chuộng bạn bè nhưng ko dung túng , não có ván đề thì đi khám cái loại tôm sông , sứa biển . suốt ngày đòi sh vs hỏi "có ghét mik ko" phiền ỉa bt là bị ghét r thì đừng hỏi nữa . quấy rối t rất nhiều tầm 3-4 lần bảo cút thì cứ năn nỉ , làm sai thì xin lỗi hờ hững ủa tưởng xin lỗi là xong haha ? ảnh pin đầy mà bảo tranh t trên X ? ủa alo ghen tị à thách thì tìm được bài đăng đó đi t gọi bà bố
 ---------
 
 <div align="center">
