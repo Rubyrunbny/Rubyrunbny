@@ -1,7 +1,7 @@
 
   
 <p align="center">
-  <img src="https://github.com/rubycoon/rubycoon/blob/f93f468f388f7278de9e49f41e59f84e653b86ba/enneagram-enneahuman.gif" width="500">  
+  <img src="https://github.com/rubycoon/rubycoon/blob/f93f468f388f7278de9e49f41e59f84e653b86ba/enneagram-enneahuman.gif" width="350">  
 </p>
 
 <div align="center">
